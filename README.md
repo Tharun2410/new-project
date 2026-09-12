@@ -1,2 +1,2 @@
 # new-project
-my info
+my info like persanal
