@@ -1,2 +1,2 @@
 # new-project
-my info like persanal
+my info like persanal hi mama
